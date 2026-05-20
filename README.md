@@ -1,0 +1,1 @@
+# mock-new-hapodigital-partners
